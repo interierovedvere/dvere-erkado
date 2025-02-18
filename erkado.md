@@ -20,7 +20,7 @@ Hlavným cieľom značky ERKADO je **kombinovať funkčnosť s moderným dizajno
 
 ## 🔹 Sortiment dverí ERKADO  
 
-ERKADO ponúka **komplexné riešenia dverí pre domácnosti, kancelárie a komerčné priestory**. Výrobky sú dostupné v rôznych **technických a dizajnových variantoch**, čím umožňujú zákazníkom nájsť **ideálny model** podľa ich potrieb a preferencií.  
+[ERKADO](https://www.lingas.sk/interierove-dvere-erkado) ponúka **komplexné riešenia dverí pre domácnosti, kancelárie a komerčné priestory**. Výrobky sú dostupné v rôznych **technických a dizajnových variantoch**, čím umožňujú zákazníkom nájsť **ideálny model** podľa ich potrieb a preferencií.  
 
 ### **1️⃣ Interiérové dvere**  
 Najväčšia kategória produktov ERKADO zahŕňa **dvere do bytových a komerčných interiérov**. Sú dostupné v rôznych konštrukčných prevedeniach:  
